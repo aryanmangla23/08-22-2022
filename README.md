@@ -30,18 +30,19 @@ Following the herd like a lost sheep,
 
 And reserving all emotions no matter what was thrown at him
 
-To blindly lose himself.
+**To blindly lose himself.**
 
 Then the love fever
 
 Head in the clouds
+
 To smile around adversity at the mere thought
 
 To understand true anxiety
 
 Cultivation of self-hate 
 
-To blindly lose himself
+**To blindly lose himself**
 
 The arrow struck,
 
@@ -49,4 +50,6 @@ And the hole quickly filled with blame and anger
 
 Searching imperfections and errors in every decision
 
-To blindly lose himself
+To deny his wrongdoings
+
+**To blindly lose himself**
