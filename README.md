@@ -15,21 +15,38 @@ Took a 1 hour nap because idk. Felt a tiny bit dizzy and got a headache. Thankfu
 I have so many questions, but I will allow them to be unanswered. Answers will appear as life passes by and if it doesn't then even then it is an answer.
 
 All the world’s a stage,
+
 And all the men and women merely players
+
 They have their exits and their entrances
+
 And one teen in his time plays many parts
+
 His act being seven chapters:
+
 At first, living under the pretense of societal norms; people pleaser,
+
 Following the herd like a lost sheep,
+
 And reserving all emotions no matter what was thrown at him
+
 To blindly lose himself.
+
 Then the love fever
+
 Head in the clouds
 To smile around adversity at the mere thought
+
 To understand true anxiety
+
 Cultivation of self-hate 
+
 To blindly lose himself
+
 The arrow struck,
+
 And the hole quickly filled with blame and anger
+
 Searching imperfections and errors in every decision
+
 To blindly lose himself
